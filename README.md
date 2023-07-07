@@ -1,0 +1,1 @@
+# PAMIR_shop.github.io
